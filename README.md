@@ -79,7 +79,6 @@
 [![Game Banner](https://gaming-cdn.com/images/avatars/16861995-1676462477.jpg)](https://www.instant-gaming.com/fr/giveaway/JOFRIK99)
 [![Game Banner](https://gaming-cdn.com/images/avatars/7994803-1650052388.jpg)](https://www.instant-gaming.com/fr/giveaway/kemist)
 [![Game Banner](https://gaming-cdn.com/images/avatars/17307721-1649242244.jpg)](https://www.instant-gaming.com/fr/giveaway/MFGAMING)
-[![Game Banner](https://gaming-cdn.com/themes/igv2/images/avatar2.svg)](https://www.instant-gaming.com/fr/giveaway/heystan)
 [![Game Banner](https://gaming-cdn.com/images/avatars/2871044-1706278970.jpg)](https://www.instant-gaming.com/fr/giveaway/drunge)
 [![Game Banner](https://gaming-cdn.com/images/avatars/3123668-1636629261.jpg)](https://www.instant-gaming.com/fr/giveaway/NU89)
 [![Game Banner](https://gaming-cdn.com/images/avatars/811973-1557938063.jpg)](https://www.instant-gaming.com/fr/giveaway/ITERMOSIFONI)
