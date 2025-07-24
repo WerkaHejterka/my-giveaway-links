@@ -3,11 +3,11 @@
 You just need to create an account on Instant Gaming Website, click on each image below and follow the instruction given by the website!
 
 [![Game Banner](https://camo.githubusercontent.com/1aaca96ee8867e4d83239bbf1e7bea68e91d80939fa2743d1d9c940568f3db15/68747470733a2f2f67616d696e672d63646e2e636f6d2f696d616765732f617661746172732f31323235343238372d313636303330363237322e6a7067)](https://www.instant-gaming.com/giveaway/BOBLENNON)
-[![Game Banner](https://gaming-cdn.com/images/avatars/16899979-1646305428.jpg)](https://www.instant-gaming.com/pl/giveaway/LOSIU)
-[![Game Banner](https://gaming-cdn.com/images/avatars/5518320-1717494512.jpg)](https://www.instant-gaming.com/giveaway/VARG)
-[![Game Banner](https://gaming-cdn.com/images/avatars/2210688-1696599045.jpg)](https://www.instant-gaming.com/giveaway/NALFEINN)
-[![Game Banner](https://gaming-cdn.com/images/avatars/452863-1561392211.jpg)](https://www.instant-gaming.com/giveaway/CODQG)
-[![Game Banner](https://gaming-cdn.com/images/avatars/170629-1547987125.jpg)](https://www.instant-gaming.com/giveaway/GAMEMOVIELAND)
+[![Game Banner](https://gaming-cdn.com/images/avatars/16899979-1646305428.jpg)](https://www.instant-gaming.com/pl/giveaway/LOSIU?igr=hwerka)
+[![Game Banner](https://gaming-cdn.com/images/avatars/5518320-1717494512.jpg)](https://www.instant-gaming.com/giveaway/VARG?igr=hwerka)
+[![Game Banner](https://gaming-cdn.com/images/avatars/2210688-1696599045.jpg)](https://www.instant-gaming.com/giveaway/NALFEINN?igr=hwerka)
+[![Game Banner](https://gaming-cdn.com/images/avatars/452863-1561392211.jpg)](https://www.instant-gaming.com/giveaway/CODQG?igr=hwerka)
+[![Game Banner](https://gaming-cdn.com/images/avatars/170629-1547987125.jpg)](https://www.instant-gaming.com/giveaway/GAMEMOVIELAND?igr=hwerka)
 [![Game Banner](https://gaming-cdn.com/images/avatars/3009082-1540312665.jpg)](https://www.instant-gaming.com/giveaway/bugland)
 [![Game Banner](https://gaming-cdn.com/images/avatars/173704-1571080323.jpg)](https://www.instant-gaming.com/giveaway/ICONOBLAST)
 [![Game Banner](https://gaming-cdn.com/images/avatars/1716955-1681777192.jpg)](https://www.instant-gaming.com/giveaway/SUPREMELEADER)
