@@ -10,7 +10,6 @@ You just need to create an account on Instant Gaming Website, click on each imag
 [![Game Banner](https://gaming-cdn.com/images/avatars/8099122-1564755224.jpg)](https://www.instant-gaming.com/giveaway/skyyart?igr=hwerka)
 [![Game Banner](https://gaming-cdn.com/images/avatars/765860-1527847205.jpg)](https://www.instant-gaming.com/giveaway/ROBERT?igr=hwerka)
 [![Game Banner](https://gaming-cdn.com/images/avatars/3297504-1554723487.jpg)](https://www.instant-gaming.com/giveaway/GAMEWAVE?igr=hwerka)
-[![Game Banner](https://gaming-cdn.com/images/avatars/162664-1527173086.jpg)](https://www.instant-gaming.com/giveaway/RATSUPER?igr=hwerka)
 [![Game Banner](https://gaming-cdn.com/images/avatars/17791717-1684537536.jpg)](https://www.instant-gaming.com/giveaway/YANKA?igr=hwerka)
 [![Game Banner](https://gaming-cdn.com/images/avatars/911134-1650630244.jpg)](https://www.instant-gaming.com/giveaway/MeetTheMyth?igr=hwerka)
 [![Game Banner](https://gaming-cdn.com/images/avatars/23232106-1706706355.jpg)](https://www.instant-gaming.com/giveaway/PHENRIR?igr=hwerka)
